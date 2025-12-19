@@ -30,5 +30,3 @@ economic ties -opps to integrate transparencty & decentrailziation +_ zero-harm 
 comprehensive gamificaiton sysytem for roles classes teacher bosss fifhtts crrazy rick with ultra boss fights
 
 buddy stystem for public sevice buildings, linking workers with homeless responsivble for using a gamified approach to rapport and trust buiuklding by keeping their buddy's sections clean, progressively advancing through the layers and subsequent gamification leyers of the building.
-
-BRB
