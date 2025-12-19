@@ -18,7 +18,7 @@ Manual finger movement device, good for near instant deployment of solutions to 
 
 
 
-~~~Switching context entirely here~~~
+**Switching context entirely here**
 She (unsure who [likely from an overheard conversation or tv segment]) blames media inaction yet media only wants drama - remnants of cascading failures in systems. I'll provide the scaffolding, need help streamlinging passports, they can't return home (I think this was in regards to an overseas refugee crisis.)
 
 wants see gaza rebuilt and borders reopeneed 
@@ -54,3 +54,39 @@ What questions might a met-systems architect be asking or should ask here?
 
 What narratives or subreddits and other online communiteies cani find and support to trigger the gradual shift in governance needed so that insitutions (vice-versa included) follow suit? The goal would be a government4 that actually SERVES the people, not one that gatekeeps the very basics neeeded to support thir very own surivvaval. Keep in mind the uses of tax ddollars at biotech labs etc. No more locked doors inititative. If kindness propagates, home invasions become welcomed overnight visits with gifts.
 Check for altiutudinal patterns globally to find potential ancient keystone locations. Other scans may also yield results.
+
+Strange pattern echo might be worth looking into in regards to the 1911 illustration titled "Every Hour is Lunch Hour at the Dreadnaught Club": 
+Every hour is lunch hour at the dreadnought club. Illustration shows the Roman god Mars, eating a battleship, with Uncle Sam and Marianne sitting at a table with rulers of European and Asian countries at the Dreadnought Club, each awaiting their meals of munitions and armaments being brought to the table by a heavily burdened waitress labeled Peace. Date 1911 May 31. Every hour is lunch hour at the dreadnought club. Illustration shows the Roman god Mars, eating a battleship, with Uncle Sam and Marianne sitting at a table with rulers of European and Asian countries at the Dreadnought Club, each awaiting their meals of munitions and armaments being brought to the table by a heavily burdened waitress labeled Peace. Date 1911 May 31.
+
+Latest suspect in a shooting I saw strangely looked like Friedrich Nietzsche doppelganger neraly aged tot the day as if temporally. not sure whicch shooting though. around this time (December 18, 2025)
+
+Peacekeeping
+leadership empowerment
+intergenerational ripples/echoes
+
+Conflict causes 
+- rivalries over colonies
+- economic competition
+- ethnic nationalism
+- growth of nationalistic public opinion
+
+**Social Darwinism**
+- product oof evolutionary survival of the fittest thinking
+- militarism
+
+- How to win/won conflicts globally ;)
+
+Teaching war is not probable but is possible supports a hostile narrative and transcends into future environments. Scouts and cadets were a product of militarism and echoes are being seen globally. ~ Needs repalcing with stewardship-centric narratives.
+
+wars are not sustainable let alone regenerative therefore they're not even all that profitable in the short term let alone the long term.
+
+Start reading **"The War that Ended Peace"** from p.291
+
+Anti-Casus Belli 
+Anti-de-pre-narraticve inversion
+anti-orchestration should be taught in schools as early as early middle school or the end of primarry school. At least prepare them for what's coming.
+
+Also read  **"Reimagining Capitalism in a World of Fire"**
+
+
+
